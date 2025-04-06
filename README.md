@@ -40,7 +40,7 @@ Thankyou.
 
 **TikTok** - https://www.tiktok.com/@codecraft147
 
-**Website** - https://codecrafts.site/
+**Website** - https://www.codecrafts.site/
 
 # Introduction
 
